@@ -18,7 +18,7 @@ https://www.wired.com/story/physicists-learn-to-superfreeze-antimatter-hint-pew-
 
 
 
-noted here 10-01-2021
+below was noted here 10-01-2021
 
 07-30-2021
 https://scitechdaily.com/scientists-generate-matter-directly-from-light-physics-phenomena-predicted-more-than-80-years-ago/
